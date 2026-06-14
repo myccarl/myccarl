@@ -1,1 +1,1 @@
-<img width="1280" height="320" alt="banner" src="https://github.com/user-attachments/assets/448b5ba2-0445-4990-aeaf-a772c66a6e3c" />
+<img width="1919" height="476" alt="Snipaste_2026-06-14_11-36-15" src="https://github.com/user-attachments/assets/27629d16-ab41-484e-9289-cb9d5bccbd33" />
